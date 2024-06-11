@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @JuHyunKim-Korea
+- 👀 I’m interested in the overall Gaming Industry, especially in Game design / Game Engineering / UI&UX Design
+- 🌱 I’m currently learning Python & C++
+- 💞️ I’m looking to collaborate on (I am not sure,,,!)
+- 📫 How to reach me Instagram / Facebook / Phone
+- 😄 Pronouns: She / Her / Hers
+- ⚡ Fun fact: ...
